@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="resources/RiZoeLX.png" alt="RiZoeLXSpam Logo">
+  <img src="resources/ADITYAAX.png" alt="ADITYAA HERE">
 </p>
 <h6 align="center">
   <b>• ᴛᴇᴀᴍ ᴍᴀʀsʜᴍᴇʟʟᴏᴡ •</b>
